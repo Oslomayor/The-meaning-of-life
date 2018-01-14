@@ -37,7 +37,7 @@ These are the words of Holly Butcher, from Grafton in NSW, Australia. She recent
 > 
 > Give, give, give. It is true that you gain more happiness doing things for others than doing them for yourself. I wish I did this more. Since I have been sick, I have met the most incredibly giving and kind people and been the receiver of the most thoughtful and loving words and support from my family, friends and strangers; More than I could I ever give in return. I will never forget this and will be forever grateful to all of these people.
 
-![](http://newsco.com.au/wp-content/uploads/2018/01/1515328262_635_newsco-com-au-holly-butcher-blood-service-echoes-dead-womans-heartfelt-call-for-blood-donations.jpg "Holly")
+![](http://newsco.com.au/wp-content/uploads/2018/01/1515328262_635_newsco-com-au-holly-butcher-blood-service-echoes-dead-womans-heartfelt-call-for-blood-donations.jpg "Holly and her husband Luke")
 
 > It is a weird thing having money to spend at the end.. when you’re dying. It’s not a time you go out and buy material things that you usually would, like a new dress. It makes you think how silly it is that we think it is worth spending so much money on new clothes and ‘things’ in our lives.
 > 
@@ -94,3 +94,4 @@ These are the words of Holly Butcher, from Grafton in NSW, Australia. She recent
 > Hol
 > 
 > Xoxo
+![Remembering Holly Butcher - facebook page](https://www.facebook.com/hollybutcher90)
