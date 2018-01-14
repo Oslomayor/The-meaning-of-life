@@ -1,7 +1,7 @@
 # The meaning of life
 ## Beautiful words from a beautiful soul
-#### I saw this wrods on 14th January, 2018
-A Day Before Her Death, This 27-Year-Old Wrote A Letter, And It May Change Your Life Forever.
+#### I saw these kind wrods on 14th January, 2018.
+A Day Before Her Death, This 27-Year-Old Wrote A Letter, And It May __Change Your Life__ Forever.
 ![](https://scontent-hkg3-1.xx.fbcdn.net/v/t1.0-9/17191528_10211039924186832_7577018772867510788_n.jpg?oh=5c854b121128474ee5cf7b109f3d103e&oe=5AFC440B "Holly")
 These are the words of Holly Butcher, from Grafton in NSW, Australia. She recently lost her battle with Ewing’s sarcoma, a rare form of cancer that primarily affects young people. Holly was just 27 when she passed away on Jan 4, 2018.
 > # A bit of life advice from Hol:
