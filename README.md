@@ -2,15 +2,15 @@
 
 # A bit of life advice from Hol:
 
-It’s a strange thing to realise and accept your mortality at 26 years young. It’s just one of those things you ignore. The days tick by and you just expect they will keep on coming; Until the unexpected happens. I always imagined myself growing old, wrinkled and grey- most likely caused by the beautiful family (lots of kiddies) I planned on building with the love of my life. I want that so bad it hurts.
+> It’s a strange thing to realise and accept your mortality at 26 years young. It’s just one of those things you ignore. The days tick by and you just expect they will keep on coming; Until the unexpected happens. I always imagined myself growing old, wrinkled and grey- most likely caused by the beautiful family (lots of kiddies) I planned on building with the love of my life. I want that so bad it hurts.
 
-That’s the thing about life; It is fragile, precious and unpredictable and each day is a gift, not a given right.
+> That’s the thing about life; It is fragile, precious and unpredictable and each day is a gift, not a given right.
 
-I’m 27 now. I don’t want to go. I love my life. I am happy.. I owe that to my loved ones. But the control is out of my hands.
+> I’m 27 now. I don’t want to go. I love my life. I am happy.. I owe that to my loved ones. But the control is out of my hands.
 
-I haven’t started this ‘note before I die’ so that death is feared - I like the fact that we are mostly ignorant to it’s inevitability.. Except when I want to talk about it and it is treated like a ‘taboo’ topic that will never happen to any of us.. That’s been a bit tough. I just want people to stop worrying so much about the small, meaningless stresses in life and try to remember that we all have the same fate after it all so do what you can to make your time feel worthy and great, minus the bullshit.
+> I haven’t started this ‘note before I die’ so that death is feared - I like the fact that we are mostly ignorant to it’s inevitability.. Except when I want to talk about it and it is treated like a ‘taboo’ topic that will never happen to any of us.. That’s been a bit tough. I just want people to stop worrying so much about the small, meaningless stresses in life and try to remember that we all have the same fate after it all so do what you can to make your time feel worthy and great, minus the bullshit.
 
-I have dropped lots of my thoughts below as I have had a lot of time to ponder life these last few months. Of course it’s the middle of the night when these random things pop in my head most!
+> I have dropped lots of my thoughts below as I have had a lot of time to ponder life these last few months. Of course it’s the middle of the night when these random things pop in my head most!
 
 Those times you are whinging about ridiculous things (something I have noticed so much these past few months), just think about someone who is really facing a problem. Be grateful for your minor issue and get over it. It’s okay to acknowledge that something is annoying but try not to carry on about it and negatively effect other people’s days.
 
