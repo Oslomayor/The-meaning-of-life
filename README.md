@@ -1,7 +1,7 @@
 # The-meaning-of-life
 
 A Day Before Her Death, This 27-Year-Old Wrote A Letter, And It May Change Your Life Forever.
-![](https://scontent-hkg3-1.xx.fbcdn.net/v/t1.0-9/17553591_10211240821569141_5802344449483333208_n.jpg?oh=e6fbf610df95d0650a957746180d3b51&oe=5AF42903 "Holly")
+![](https://scontent-hkg3-1.xx.fbcdn.net/v/t1.0-9/17191528_10211039924186832_7577018772867510788_n.jpg?oh=5c854b121128474ee5cf7b109f3d103e&oe=5AFC440B "Holly")
 These are the words of Holly Butcher, from Grafton in NSW, Australia. She recently lost her battle with Ewing’s sarcoma, a rare form of cancer that primarily affects young people. Holly was just 27 when she passed away on Jan 4 2018.
 > # A bit of life advice from Hol:
 > 
