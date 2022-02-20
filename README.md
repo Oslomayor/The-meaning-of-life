@@ -12,7 +12,7 @@ These are the words of Holly Butcher, from Grafton in NSW, Australia. She recent
 > 
 > I’m 27 now. I don’t want to go. I love my life. I am happy.. I owe that to my loved ones. But the control is out of my hands.
 
-![](https://github.com/Oslomayor/Markdown-Imglib/blob/master/Imgs/Holly%20Butcher2.jpg?raw=true "Holly")
+
 
 > I haven’t started this ‘note before I die’ so that death is feared - I like the fact that we are mostly ignorant to it’s inevitability.. Except when I want to talk about it and it is treated like a ‘taboo’ topic that will never happen to any of us.. That’s been a bit tough. I just want people to stop worrying so much about the small, meaningless stresses in life and try to remember that we all have the same fate after it all so do what you can to make your time feel worthy and great, minus the bullshit.
 > 
@@ -38,19 +38,19 @@ These are the words of Holly Butcher, from Grafton in NSW, Australia. She recent
 > 
 > Give, give, give. It is true that you gain more happiness doing things for others than doing them for yourself. I wish I did this more. Since I have been sick, I have met the most incredibly giving and kind people and been the receiver of the most thoughtful and loving words and support from my family, friends and strangers; More than I could I ever give in return. I will never forget this and will be forever grateful to all of these people.
 
-![](https://github.com/Oslomayor/Markdown-Imglib/blob/master/Imgs/Holly%20Butcher%20and%20her%20husband.jpg?raw=true "Holly and her husband Luke")
+
 
 > It is a weird thing having money to spend at the end.. when you’re dying. It’s not a time you go out and buy material things that you usually would, like a new dress. It makes you think how silly it is that we think it is worth spending so much money on new clothes and ‘things’ in our lives.
 > 
 > Buy your friend something kind instead of another dress, beauty product or jewellery for that next wedding. 1. No-one cares if you wear the same thing twice 2. It feels good. Take them out for a meal, or better yet, cook them a meal. Shout their coffee. Give/ buy them a plant, a massage or a candle and tell them you love them when you give it to them.
 
-![](https://github.com/Oslomayor/Markdown-Imglib/blob/master/Imgs/Holly%20Butcher%20and%20her%20friend.jpg?raw=true)
+
 
 > Value other people’s time. Don’t keep them waiting because you are shit at being on time. Get ready earlier if you are one of those people and appreciate that your friends want to share their time with you, not sit by themselves, waiting on a mate. You will gain respect too! Amen sister.
 > 
 > This year, our family agreed to do no presents and despite the tree looking rather sad and empty (I nearly cracked Christmas Eve!), it was so nice because people didn’t have the pressure of shopping and the effort went into writing a nice card for each other. Plus imagine my family trying to buy me a present knowing they would probably end up with it themselves.. strange! It might seem lame but those cards mean more to me than any impulse purchase could. Mind you, it was also easier to do in our house because we had no little kiddies there. Anyway, moral of the story- presents are not needed for a meaningful Christmas. Moving on.
 
-![](https://github.com/Oslomayor/Markdown-Imglib/blob/master/Imgs/Holly%20Butcher3.jpg?raw=true "Holly")
+
 
 > Use your money on experiences.. Or at least don’t miss out on experiences because you spent all your money on material shit.
 > 
